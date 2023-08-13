@@ -1,4 +1,4 @@
  
- Passing time by coding several different Python snippets, codes and programs
+If anyone is buying a home or something long term this will get you started!
  
  
